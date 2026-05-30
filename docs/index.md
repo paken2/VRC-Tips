@@ -223,3 +223,6 @@ Available on [Jinxxy](https://jinxxy.com/Flux_Abraxis/mvj6v)
                         
 ## Fluff Avali         
 Available on [Jinxxy](https://jinxxy.com/melacar/FluffAvali)            
+                        
+## Tri'Vali         
+Available on [Jinxxy](https://jinxxy.com/FUNGUSFACTORY/trivali)            
