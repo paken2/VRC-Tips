@@ -225,4 +225,7 @@ Available on [Jinxxy](https://jinxxy.com/Flux_Abraxis/mvj6v)
 Available on [Jinxxy](https://jinxxy.com/melacar/FluffAvali)            
                         
 ## Tri'Vali         
-Available on [Jinxxy](https://jinxxy.com/FUNGUSFACTORY/trivali)            
+Available on [Jinxxy](https://jinxxy.com/FUNGUSFACTORY/trivali)         
+
+## Za'vali         
+Available on [Jinxxy](https://jinxxy.com/ShadowZer0/oNt37)       
